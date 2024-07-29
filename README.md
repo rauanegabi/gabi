@@ -8,6 +8,9 @@ Meu nome é Rauane Gabriela
 
   ### Você pode entrar em contato comigo👇
 
-  gmail:rauane.gabriela.lima@escola.pr.gov.br
+  rauane.gabriela.lima@escola.pr.gov.br
   
-  instagram:rauane_gabriela
+  @rauane_gabriela
+
+  ![](https://media1.tenor.com/m/GTlDCm4P4EsAAAAd/kitty-kitten.gif)
+  
